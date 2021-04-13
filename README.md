@@ -1,4 +1,24 @@
 # Software
+- AOMEI Partisi
+https://www.kuyhaa-me.com/aomei-partition-assistant-technician-full.html
+  - versi bootable https://www109.zippyshare.com/v/qv9rehFF/file.html
+  - biasa https://www64.zippyshare.com/v/FOx109rr/file.html
+
+- ccleaner
+https://www.kuyhaa-me.com/ccleaner-professional-plus-terbaru.html
+  - hanya keygen https://www34.zippyshare.com/v/XaqmSgkG/file.html
+  - biasa https://www18.zippyshare.com/v/RosVgUSu/file.html
+
+- winrar
+https://gigapurbalingga.net/winrar-5-21-beta-1-full-keygen-for-activation/
+  - x32 https://www33.zippyshare.com/v/4iV1SlcD/file.html
+  - x64 https://www33.zippyshare.com/v/6rtguPNf/file.html
+
+- Power-user Premium
+https://gigapurbalingga.net/power-user-premium-full-crack/
+  - biasa https://www33.zippyshare.com/v/UqjamyWf/file.html
+  - key https://www33.zippyshare.com/v/8Sbto96b/file.html
+
 - free pdf protector 4dots
 https://www.4dots-software.com/free-pdf-protector/
 
