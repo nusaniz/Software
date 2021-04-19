@@ -34,6 +34,10 @@ https://www.nchsoftware.com/documentconvert/index.html
 - pixillion image converter
 https://www.nchsoftware.com/imageconverter/index.html
 
+- bootice (repair usb flashdisk / drive)
+  - downlaod https://www.filehorse.com/download-bootice/download/ atau bisa ambil di atas.
+  - panduan https://cittatech.wordpress.com/2016/12/12/flashdisk-anda-palsu-ini-solusinya/
+
 - nitro pdf
 https://gigapurbalingga.net/nitro-pro-terbaru/
 
